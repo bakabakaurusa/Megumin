@@ -1,0 +1,2 @@
+# Megumin
+ex~plo~sion!
